@@ -1,6 +1,6 @@
 # ISSUE REPORTING EXTERNAL
 
-![alt text](https://p-support.tinytake.com/media/14ec68d?filename=1692529586736_TinyTake20-08-2023-07-06-17_638281263856609404.png)
+![alt text](https://p-support.tinytake.com/media/14ec69b?filename=1692530497986_Issue+Reporting+External.png)
 
 
 
